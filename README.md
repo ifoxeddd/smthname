@@ -1,0 +1,2 @@
+# smthname
+then =)
